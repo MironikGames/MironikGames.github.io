@@ -1,2 +1,0 @@
-# MironikGames.github.io
-Homepage
